@@ -1,1 +1,1 @@
-# pietra_alura
+me chamo Pietra,tenho 16 anos e sou do alura
